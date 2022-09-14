@@ -1,1 +1,0 @@
-# badyaxa.github.io
